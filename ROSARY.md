@@ -2,8 +2,8 @@
 
 Below are Bible quotations that can guide meditations during each Hail Mary of each mystery of the Holy Rosary.
 
-## Joyful Mysteries
-### 1. Annunciation
+## The Joyful Mysteries
+### 1. The Annunciation
 1. The angel Gabriel was sent from God to a virgin, and the virgin's name was Mary (Luke 1. 26,27)
 2. "Hail, full of grace, the Lord is with you. Blessed are you among women." (Luke 1:28)
 3. When she heard him she was troubled at his word, and kept pondering what manner of greeting this might be. (Luke 1:29)
@@ -15,7 +15,7 @@ Below are Bible quotations that can guide meditations during each Hail Mary of e
 9. "And therefore the Holy One to be born shall be called the Son of God." (Luke 1:35)
 10. "Behold the handmaid of the Lord: be it done to me according to your word." (Luke 1:38)
 
-### 2. Visitation
+### 2. The Visitation
 1. Now Mary went into the hill country. And she entered the house of Zachary and saluted Elizabeth. (Luke 1:39-40)
 2. When Elizabeth heard the greeting of Mary, the babe in her womb leapt. And she was filled with the Holy Spirit. (Luke 1:41)
 3. And she cried out, "Blessed are you among women and blessed is the fruit of your womb!" (Luke 1:42)
@@ -27,7 +27,7 @@ Below are Bible quotations that can guide meditations during each Hail Mary of e
 9. "He has put down the mighty from their thrones, and has exalted the lowly." (Luke 1:52)
 10. "He has filled the hungry with good things, and the rich He has sent away empty." (Luke 1:53)
 
-### 3. Nativity
+### 3. The Nativity
 1. It came to pass while they were in Bethlehem, that the days for her to be delivered were fulfilled. (Luke 2:6)
 2. And she brought forth her firstborn Son, and wrapped Him in swaddling clothes. (Luke 2:7)
 3. And she laid HIm in a manager, because there was no room for them in the inn. (Luke 2:7)
@@ -39,7 +39,7 @@ Below are Bible quotations that can guide meditations during each Hail Mary of e
 9. And falling down they worshipped Him and they offered Him gifts of gold, frankincense and myrrh. (Mat 2:11)
 10. And Mary kept in mind all these things, pondering them in her heart. (Luke 2:19)
 
-### 4. Presentation
+### 4. The Presentation
 1. According to the Law of Moses, they took Jesus up to Jerusalem to present Him to the Lord. (Luke 2:32)
 2. Now there was in Jerusalem a man named Simeon, and this man was just and devout, looking for the consolation of Israel. (Luke 2:25)
 3. And it had been revealed to him that he should not see death before he had seen the Christ of the Lord. (Luke 2:26)
@@ -51,7 +51,7 @@ Below are Bible quotations that can guide meditations during each Hail Mary of e
 9. "And your own soul a sword shall pierce, that the thoughts of many hearts may be revealed." (Luke 2:35)
 10. And they returned to Nazareth. And the child grew and became strong, and the grace of God was upon Him. (Luke 2:39)
 
-### 5. Finding
+### 5. The Finding in the Temple
 1. When Jesus was twelve years old, they went up to Jerusalem according to the custom of the feast. (Luke 2:42)
 2. And when they were returning, the boy Jesus remained in Jerusalem, and His parents did not know it. (Luke 2:43)
 3. They returned to Jerusalem in search of Him. And after three days, they found Him in the temple. (Luke 2:45-46)
@@ -63,8 +63,8 @@ Below are Bible quotations that can guide meditations during each Hail Mary of e
 9. And He went down with them and came to Nazareth, and was subject to them. (Luke 2:51)
 10. And Jesus advanced in wisdom and age and grace before God and man. (Luke 2:52)
 
-## Luminous Mysteries
-### 1. Baptism
+## The Luminous Mysteries
+### 1. The Baptism
 1. In those days John the Baptist came, preaching in the desert of Judea and saying "Repent for the kingdom of heaven is at hand." (Matt. 3:1-2)
 2. Then people from Jerusalem, all of Judea, and all the region around the Jordan went out to him. They were baptized by him in the Jordan, confessing their sins. (Matt. 3:5-6)
 3. "I indeed baptize you with water for repentance." But he who is coming after me is mightier than I, whose sandals I am not worthy to bear." (Matt. 3:11)
@@ -76,7 +76,7 @@ Below are Bible quotations that can guide meditations during each Hail Mary of e
 9. He saw the Spirit of God descending as a dove, and coming on him. (Matt. 3:16)
 10. A voice out of the heavens said, "This is my beloved Son, with whom I am well pleased." (Matt. 3:17)
 
-### 2. Manifestation
+### 2. The Manifestation
 1. There was a marriage in Cana of Galilee. Jesus' mother was there (John 2:1)
 2. Jesus also was invited, with his disciples, to the marriage. When the wine ran out, Jesus' mother said to him, "They have no wine." (John 2:2-3)
 3. Jesus said to her, "Woman, what does that have to do with you and me? My hour has not yet come." (John 2:4)
@@ -88,7 +88,7 @@ Below are Bible quotations that can guide meditations during each Hail Mary of e
 9. And He said to him, "Everyone serves the good wine first, and when the guests have drunk freely, then that which is worse. But You have kept the good wine until now!" (John 2:10)
 10. This was the beginning of the signs that Jesus accomplished in Cana of Galilee, and it manifested his glory, and his disciples believed in him. (John 2:11)
 
-### 3. Proclamation
+### 3. The Proclamation of the Kingdom
 1. Jesus came into Galilee preaching the Gospel of the kingdom of God, and saying "The time is fulfilled, and the kingdom of God is at hand. Repent and believe in the Gospel." (Mark 1:14-15)
 2. "Unless a man be born of water and the Spirit, he cannot enter the kingdom of God." (John 3:5)
 3. "Blessed are the poor in spirit, for theirs is the Kingdom of heaven" (Matt 5:3)
@@ -100,7 +100,148 @@ Below are Bible quotations that can guide meditations during each Hail Mary of e
 9. "I must proclaim the kingdom of God, for this is why I have been sent" (Luke 4:43)
 10. "My kingdom is not of this world." (John 18:36)
 
+### 4. The Transfiguration
+1. Jesus took Peter, James and his brother John and led them up a high mountain by themselves and was transfigured before them (Matt 17:1)
+2. And his face shone as the sun and his garments became white as snow. (Matt 17:2)
+3. And behold there appeared to them Moses and Elijah talking together with him. (Matt 17:3)
+4. Now Peter and his companions were heavy with sleep. But when they were fully awake, they saw his glory and the two men who were standing with him. (Luke 9:32)
+5. Then Peter addressed Jesus saying "Lord it is good for us to be here. Let us set up three tents here, one for you, one for Moses and one for Elijah" (Matt 17:4)
+6. As he was still speaking, behold a bright cloud overshadowed them. (Matt 17:5)
+7. And behold a voice out of the cloud said "This is my beloved Son, in whom I am well pleased, hear him." (Matt 17:5)
+8. And on hearing it the disicples fell on their faces andn were exceedingly afraid. (Matt 17:6)
+9. And Jesus came near and touched them and said to them, "Arise, and do not be afraid." (Matt 17:7)
+10. And suddenly looking round, they no longer saw anyone with them but only Jesus. (Mark 9:8)
 
+### 5. The Institution of Holy Eucharist
+1. Jesus said "I am the bread of life". (John 6:35)
+2. "He who comes to me shall no hunger, and he who believes in me shall not thirst." (John 6:35)
+3. "He who eats my flesh and drinks my blood has life everlasting and I shall raise him up on the last day." (John 6:54)
+4. "For my flesh is food indeed, and my blood is drink indeed" (John 6:56)
+5. And while they were at supper, Jesus took break and blessed and broke it, and gave it to his disciples and said (Matt 26:26)
+6. "This is my body which is being given for you; do this in remembrance of me." (Luke 22:19)
+7. And taking a cup, he gave thanks and gave it to them, saying (Matt 26:27)
+8. "This is my blood of the new covenant which shall be shed for many." (Mark 14:24)
+9. "Do this as often as you drink it in remembrance of me." (1 Cor 11:25)
+10. For as often as you shall eat this bread and drink this cup, you proclaim the death of the Lord, until he comes. (1 Cor 11:26)
 
+## The Sorrowful Mysteries
+### 1. The Agony in the Garden
+1. Jesus came with them to Gethsemane and He began to be saddened and exceedingly troubled. (Matt. 26:36-37)
+2. Then He said to them, "My sould is sad, even unto death. Wait here and watch with Me." (Matt. 6:38)
+3. And going forward a little, He fell on the ground and began to pray. (Mark 14:35)
+4. "Father, if Thou art willing, remove this cup from Me; yet not My will but Thine be done." (Luke 22:42)
+5. And there appeared to Him an angel from heaven to strengthen Him. (Luke 22:43)
+6. And falling into an agony He prayed the more earnestly. (Luke 22:43)
+7. And His sweat became as drops of blood running down upon the ground. (Luke 22:44)
+8. Then He came to the disciples and found them sleeping. And He said, "Could you not, then, watch one hour with me?" (Matt. 26:40)
+9. "Watch and pray, that you may not enter into temptation." (Matt. 26:41)
+10. "The spirit indeed is willing, but the flesh is weak." (Matt. 26:41)
 
+### 2. The Scourging at the Pillar
+1. They bound Jesus and delivered Him to Pilate. And Pilate asked Him, "Art thou the king of the Jews?" (Mark 15:1-2)
+2. Jesus answered, "My kingdom is not of this world. But thou sayest it; I am a king." (John 18:36-37)
+3. "This is why I was born, and why I have come into the world, to bear witness to the truth." (John 18:37)
+4. Then Pilate said, "I find no guilt in this man. I will therefore chastise Him and release Him." (Luke 23:4, 16)
+5. Pilate then took Jesus and had Him scourged. (John 19:1)
+6. Oppressed and condemned, He was taken away, a man of suffering. (Isa. 53:8, 3)
+7. Though He was harshly treated, He submitted, like a lamb led to the slaughter. (Isa. 53:7)
+8. He was pierced for our offenses, crushed for our sins. (Isa. 53:5)
+9. It was our infirmities that He bore, our sufferings, that He endured. (Isa. 53:4)
+10. Upon HIm was the chastisement that makes us whole, by His stripes we are healed. (Isa. 53:5)
 
+### 3. The Crowning with Thorns
+1. Now the soldiers led Him away into the courtyard, and they stripped Him and put on Him a purple cloak. (Mark 15:16; Matt. 27:28)
+2. And plaiting a crown of thorns they put it on His head, and a reed into His right hand. (Matt. 27:29)
+3. And bending the knee before Him they mocked Him, saying, "Hail, King of the Jews!" (Matt. 27:29)
+4. And they spat on Him, and took the reed and kept striking Him on the head. (Matt. 27:50)
+5. Pilate again went outside ands aid, "I bring Him out to you, that you may know that I find no guilt in Him." (John 19:4)
+6. Jesus therefore cem forth, wearing the crown of thorns and the purple cloak. (John 19:5)
+7. And Pilate said to them, "Behold the man!" But they cried out, "Away with Him! Crucify Him!" (John 19:5, 15)
+8. "Why, what evil has He done?" But they kept crying out the more, "Crucify Him!" (Mark 15:14)
+9. "Shall I crucify your king?" And the chief priests answered, "We have no king but Caesar." (John 19:15)
+10. Then he handed Him over to them to be crucified. And so they took Jesus and led Him away. (John 19:16)
+
+### 4. The Carrying of the Cross
+1. "If anyone wishes to come after Me let him deny himself." (Luke 9:23)
+2. "And take up his cross daily, and follow Me." (Luke 9:23)
+3. And bearing the cross for Himself, He went forth to the place called "The Skull." (John 19:17)
+4. And they laid hold of a cerain Simon of Cyrene, and upon him they laid the cross to bear it after Jesus. (Luke 23:26)
+5. "Take My yoke upon you, and learn from Me." (Matt. 11:29)
+6. "For I am meek, and humble of heart." (Matt. 11:29)
+7. "And you will find rest for your souls. For my yoke is easy, and My burden light." (Matt. 11:29-30)
+8. Now there was following Him a great crowd of people, and of women, who were bewailing and lamenting Him. (Luke 23:27)
+9. Jesus, turning to them, said, "Do not weep for Me, but weep for yourselves and for your children." (Luke 23:28)
+10. "For if in the case of the green wood they do these things, what is to happen in the case of the dry?" (Luke 23:31)
+
+### 5. The Crucifixion
+1. And when they came to the place called "The Skull," they crucified Him. (Luke 23:33)
+2. And Jesus said, "Father, forgive them, for they do not know what they are doing." (Luke 23:34)
+3. And one of the robbers crucified with Him said, Lord, remember me when Thou comest into Thy kingdom. (Matt. 27:44; Luke 23:39, 42)
+4. And Jesus said to him "Amen I say to thee this day thou shalt be with Me in paradise." (Luke 23:43)
+5. And Jesus saw His mother and the disciple standing by, whom He loved. (John 19:26)
+6. And He said to His mother, "Woman, behold thy son."Then He said to His disciple, "Behold thy mother." (John 19:26-27)
+7. And from that hour the disciple took her into his home. (John 19:27)
+8. And the sun was darkened, and the earth quaked, and the curtain of the temple was torn in two. (Luke 23:45; Matt. 27:51)
+9. And Jesus cried out with a loud voice and said, "Father, into Thy hands I commend My spirit." (Luke 23:45)
+10. And bowing His head, He expred. (John 19:30; Luke 23:46)
+
+## The Glorious Mysteries
+### 1. The Resurrection
+1. "Amen, amen, I say to you, thay you shall be sorrowful, but your sorrow shall be turned into joy." (John 16:20)
+2. "For I will see you again, and your heart shall rejoice, and your joy no one shall take from you." (John 16:22)
+3. At early dawn, they came to the tomb, taking the spices that they had prepared. (Luke 24:1)
+4. And behold, an angel of the Lord came down form heven, and drawing near rolled back the stone. (Matt. 28:2)
+5. "Do not be afraid; for I know that you seek Jesus, who was crucified." (Matt. 28:5)
+6. "He is not here, but has risen. Behold the place where they laid Him." (Luke 24:6; Mark 16:6)
+7. "And behold, He goes before you into Galilee; there you shall see Him." (Matt.28:7) 
+8. And they departed quickly from the tomb in fear and great joy. (Matt. 28:8)
+9. "I am the Resurrection and the Life; he who believes in Me, even if he die, shall live." (John 11:25)
+10. "And whoever believes in Me shall never die." (John 11:26)
+
+### 2. The Ascension
+1. Now He led them out toward Bethany, and He lifted up His hands and blessed them. (Luke 24:50)
+2. Saying, "All power in Heaven and on earth has been given to Me." (Matt. 28:18)
+3. "Go, therefore, and make disciples of all nations." (Matt. 28:19)
+4. "Baptizing them in the name of father, and of the Son, and of the Holy Spirit." (Matt. 28:19)
+5. "Teaching them to observe all that I have commanded you." (Matt. 28:20)
+6. "He who believes and is baptized shall be saved." (Mark 16:16)
+7. "But he who dows not believe shall be condemned." (Mark 16:16)
+8. "And behold, I am with you all days, even unto the consummation of the world." (Matt. 28:20)
+9. And it came to pass as He blessed them, that He parted from them. (Luke 24:51)
+10. And was taken up into heaven, and sits at the right hand of God. (Mark 16:19)
+
+### 3. The Descent of the Holy Spirit
+1. When the days of Pentecost were drawing to a close, they were all together in one place. (Acts 2:1)
+2. And suddenly there came a sound from heaven, as of a violent wind blowing. (Acts 2:2)
+3. And there appeared to them parted tongues as of fire, which settled upon each of them. (Acts 2:3)
+4. And they were filled with the Holy Spirit and began to speak of the wonderful works of God. (Acts 2:4, 11)
+5. Now there were staying in Jerusalem devout Jews from every nation under heaven. (Acts 2:5)
+6. And Peter, standing up with the Eleven, lifted up his voice and spoke to them. (Acts 2:14)
+7. "Repent and be baptized; and you will receive the gifts of the Holy Spirit." (Acts 2:38)
+8. Now they who received his word were baptized and there were added that day about three thousand souls. (Acts 2:41)
+9. Send forth Thy Spirit, and they shall be created; and Thou shalt renew the face of the earth. (Ps. 103:30)
+10. Come, O Holy Spirit, fill the hearts of Thy faithful; and kindle in them the fire of Thy love. (Pentecost Alleluia)
+
+### 4. The Assumption
+1. Blessed art thou, O daughter, by the Lord the most high God, above all women on earth. (Judith 13:23)
+2. For He has so magnified thy name this day, that thy praise shall not depart out of the mouths of men. (Judith 13:25)
+3. In every nation which shall hear thy name, the God of Israel shall be magnified on occasion of thee. (Judith 13:31)
+4. Thou art the glory of Jerusalem, thou art the joy of Israel, thou are the honor of our people. (Judith 15:10)
+5. Hear, O daughter, and see; turn your ear, for the king shall desire your beauty. (Ps. 44:11-12)
+6. And the temple of God in heaven was opened, and there came flashes of lightning, and peals of thunder. (Rev. 11:19)
+7. And a great sign appeared in heaven: a woman clothed with the sun. (Rev. 12:1)
+8. And the moon was under her feet, and upon her head a crown of twelve stars. (Rev. 12:1)
+9. All glorious is the king's daughter as she enters; her raiment is threaded with spun gold. (Ps. 44:14)
+10. Sing to the Lord a new song, for He has done wondrous deeds. (Ps. 97:1)
+
+### 5. The Coronation
+1. Who is this that comes forth like the dawn, as beautiful as the moon, as resplendent as the sun? (Cant. 6:10)
+2. Like the rainbow appearing in the cloudy sky; like the blossoms on the branches in springtime. (Sir. 50:8-9)
+3. I am the mother of fair love, and of fear, and of knowledge, and of holy hope. (Sir. 24:24)
+4. In me is all grace of the way and of the truth, in me is all hope of life and of virtue. (Sir. 24:25)
+5. Come to me, all you that yearn for me, and be filled with my furits. (Sir. 24:26)
+6. You will remember me as sweeter than honey, better to have than the honeycomb. (Sir. 24:27)
+7. So now, children, listen to me; instruction and wisdom do not reject! (Prov. 8:32-33)
+8. Happy are those who keep my ways, watching daily at my gates. (Prov. 8:33-34)
+9. For he who finds me finds life, and wins favor from the Lord. (Prov. 8:35)
+10. Hail, O Queen of Mercy, protect us from the enemy and receive us at the hour of death. (Queenship of the B.V.M., Gradual)
